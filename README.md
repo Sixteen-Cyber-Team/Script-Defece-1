@@ -1,2 +1,2 @@
-# Script-Defece-1
-Ambil aja banh gpp:(
+Pake aja Gk usah liat Contoh" Script Defece nya:(
+Bagus kok bang:(
